@@ -2,7 +2,7 @@
 - 👀 I’m interested in  Web development
 - 🌱 I’m currently learning uiux
 - 💞️ I’m looking to collaborate on game development
-- 📫 How to reach me  
+- 📫 How to reach me by brazzers
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
