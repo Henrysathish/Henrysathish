@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Henrysathish
 - 👀 I’m interested in  Web development
 - 🌱 I’m currently learning uiux
-- 💞️ I’m looking to collaborate on geame development
+- 💞️ I’m looking to collaborate on game development
 - 📫 How to reach me  
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
